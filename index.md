@@ -1,2 +1,2 @@
 # Home
-  - here we are
+  - freely disassociate
